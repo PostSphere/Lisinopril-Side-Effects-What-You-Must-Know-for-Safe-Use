@@ -1,4 +1,4 @@
-# Lisinopril-Side-Effects-What-You-Must-Know-for-Safe-Use
+# Lisinopril Side Effects What You Must Know for Safe Use
 
 ![img](https://i.ytimg.com/vi/o5kMdnrkbcw/maxresdefault.jpg)
 
